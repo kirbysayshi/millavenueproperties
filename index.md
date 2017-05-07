@@ -6,5 +6,3 @@
 
 > 170 S Ash Ave<br>
 > Tempe, Arizona
-
-We specialize in all your real estate needs in the ASU and Downtown Tempe districts.
