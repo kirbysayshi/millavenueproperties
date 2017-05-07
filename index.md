@@ -4,7 +4,7 @@
 - Facebook: [MillAvenueProperties](https://www.facebook.com/pg/MillAvenueProperties)
 - Email: [millproperties@q.com](mailto:millproperties@q.com)
 
-> 170 S Ash Ave
+> 170 S Ash Ave<br>
 > Tempe, Arizona
 
 We specialize in all your real estate needs in the ASU and Downtown Tempe districts.
